@@ -36,58 +36,258 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The treasure of Euonymus conteyninge the vvonderfull hid secretes of nature, touchinge the most apte
+
+1. Iohn Daye to the Chriſtian Reader.
+
+1. The preface of the author to the Reader.
+
+1. The authors alledged in this Boke.
+
+1. A Table of the chapters conteined in this Booke.
+
 #####Body#####
 
-1. Abſinthium.
+1. ❧VVhat Deſtillation is, and of diuers formes and kyndes.
 
-1. Alſine.
+1. ¶ Of the vertues of licores deſtilled generally.
 
-1. Caepa.
+1. ❧Of the manifold vſe of lyquors deſtilled, both in phyſick, & otherwyſe.
 
-1. Ceraſus.
+1. ¶ A way to purge and make clean troubled waters, out of Bulcaſis.
 
-1. Fragaria. 
+1. ¶ Of Balneum Mariae generally, and of thoſe deſtillations that be done by vapors of hoat  water and in horſe dong.
 
-1. Fraxinus.
+1. Certain excellent ſimple vvaters deſtilled in Balneo Mariae, firſt of plantes, then of beeſts. 
 
-1. Helxines.
+    _ Abſinthium.
 
-1. Hieracium.
+    _ Alſine.
 
-1. Hiſſopus.
+    _ Caepa.
 
-1. Intybum.
+    _ Ceraſus.
 
-1. Lauendula.
+    _ Fragaria. 
 
-1. Iuglans.
+    _ Fraxinus.
 
-1. Orchis.
+    _ Helxines.
 
-1. Perſica.
+    _ Hieracium.
 
-1. Petroſelinum.
+    _ Hiſſopus.
 
-1. Plantago.
+    _ Intybum.
 
-1. Pulegium.
+    _ Lauendula.
 
-1. Rapum.
+    _ Iuglans.
 
-1. Roſa,
+    _ Orchis.
 
-1. Saluiae.
+    _ Perſica.
 
-1. Scabioſa.
+    _ Petroſelinum.
 
-1. Sedum.
+    _ Plantago.
 
-1. Solanum.
+    _ Pulegium.
 
-1. Tilia.
+    _ Rapum.
 
-1. ¶ Hereafter will I put the vſe of burning water, with other medicines without the body.
+    _ Roſa,
+
+1. ❧ Of Rooſe vvater out of Bulcaſis.
+
+    _ Saluiae.
+
+    _ Scabioſa.
+
+    _ Sedum.
+
+    _ Solanum.
+
+    _ Tilia.
+
+1. Of vvaters deſtilled of beaſtes, or of their partes, or excrementes, and firſt of all of the hoole beaſtes.
+
+1. Of veſſels and diuers inſtruments belonging to deſtellation.
+
+1. Of the matter for veſſels of deſtillacion: and firſt againſt leaden and braſen veſſels.
+
+1. Of Fornaces, &c.
+
+1. ❧Hovve to cloſe veſſels and to defende them, both with clay and otherwyſe.
+
+1. Of the preparation for deſtillation.
+
+1. Of the rectification of liquors deſtilled.
+
+1. Deſtillacion by a Filter or a liſt of Wollen cloth.
+
+1. Of burninge vvater or ſingleAqua vitae, and of the ſtrength therof, and manifold vſe.
+
+1. Of the ſtrengthes and vertues of Aqua vitae, in the boke of Arnold, De Villa noua, which is written of Aqua vitae.
+
+1. Of ſuch thinges as be deſtilled dry, put into any liquor.
+
+1. Of quint eſſence of remedies.
+
+1. Hovv the quinteſſens of all things may be drawn out, to miniſter them or the vertue of them, to mennes bodies: oute of the firſt boke of Lullus, intreatinge of quinteſſene.
+
+1. ❧ Of the dravvyng out of the quint eſſence from wyne, out of Vlſtadius and Raymund Lullus.
+
+1. Hovv qvint eſſence may be dravven out more eaſely and with les coſt, for poore mens ſakes, out of the ſame.
+
+1. ❧In vvhat places Vlſtadius in his heauen, teacheth to drawe out diuers quint eſſences. 
+
+1. A merueilous vvater that hathe a contrary operation to Aqua vitae which may be called cold quint eſſence.
+
+1. Of the extracting and dravvyng forth of all the vertues of Chelidonia or ſelandine: by the whiche example, euery man of any vnderſtanding, may vſe to drawe out the vertues  alſo of other planetes.
+
+1. Hovv quint eſſence is dravvn out of frutes, as Appels, Peres, plummes, Cheries, Cheſtnuts. &c. out of Vlſtadiꝰ.
+
+1. Oute of Floures, herbes, and rootes.
+
+1. Of quint eſſence of mans bloud, egges, fleſhe, and hony.
+
+1. Of quint eſſence of metals.
+
+1. Of the dravving out of quint eſſence from Antimonia, lead, white lead outof Vlſtadius.
+
+1. Of diuers kindes of Aqua  vitae compoſed.
+
+1. Aqua vite againſt peſtilence, proued and vſed with great and marueilous ſucces by a certain phyſicion of our tyme of Solodurn in Heluetia the yere of our Lord. 2547. In ſo much that ſcarſly euery tenth of them that receiued it, died.
+
+1. Tvvo compoſitions of Aqua vite oute of the boke of Raimundus Lullus, of waters.
+
+1. VVhat medicines be mixt vvith Aqua vitae, without any deſtillation, firſt within the body, then without.
+
+    _ ¶ Hereafter will I put the vſe of burning water, with other medicines without the body.
+
+1. A vvater to vvaſhe the partes taken with the Palſey.
+
+1. Of deſtilled vvaters compoſed, but wyth other, then wyth Aqua vitae.
+
+1. Certaine compoſed vvaters, to be deſtilled other of the medicines by them ſelues, or wyth well ſpryng water: oute of the treatiſe of Rogerius. 4. cha. 6.
+
+1. Of vvaters of vertues or golden waters and certain other compoſed of many medicines, deſtilled with wine.
+
+1. A vvater of certaine remedies for ſhortnes of breath and harde fetchinge of a mannes winde.
+
+1. A vvater for the ſtone, deſcribed by Epiphanius a practicioner.
+
+1. Certain vvaters compoſed, deſtilled with vinegar.
+
+1. VVaters of Capons.
+
+1. VVaters compoſed for diuers diſeaſes, within ye body chiefly, wherof ſome are made of medicins and iuyces, whiles they be yet newe, other are infuſed and put into the iuices of plāts or waters deſtilled, whay, or bloud.
+
+1. An approued vvater for the ſores of the raines and bladder, by the cardinall of Tutellis.
+
+1. A water compoſed, the fyrſte amongſte Aegidius waters.
+
+1. A vvater agrinſt the Peſtilence, &c. of the bloud of a Wether or gelded Ram, out of a certain Duche writen booke.
+
+1. Of pur ging medicines, compoſed deſtilled.
+
+1. Gold Potable or that may be drōken.
+
+1. Certain vvaters compoſed againſt the diſeaſes of the eyes.
+
+1. Certaine vvaters for the eyes out of Rogerius.
+
+1. Of vvaters of ſvviet ſauoure. 
+
+1. Roſevvater vvith muſke, Saffron, Cloues, Caphura out of Bulcaſis.
+
+1. VVaters of ſvviet ſauour of Andreas Furnerius, in his Frenche booke of the garniſhyng of mans nature.
+
+1. VVaters deſtilled called Coſmeticall, that is perteininge to garniſhynge and deckinge.
+
+1. Certain vvaters Deſtilled for the garniſhing of the face, out of Andreas Furnerius in his Frenche booke of the bewtifying man kynde.
+
+1. Certain coſmeticall thinges, out of the Antidotorium of Gordonius. 
+
+1. VVaters for the dying of heares of the heed and other.
+
+1. A vvaye to deſtill ſvviete vvaters, and effectuall, oute of Flowers and Hearbes by deſcencion or goinge downwarde.
+
+1. Deſtillation in Aſſhes, or Sand or Dros of metall beeten. &c.
+
+1. Of roſaries, that is to ſay inſtruments wherwith a deſtilled liquor maye be gotten oute of Roſes and other medicines, fyre being put vnder (for the mooſte parte wythoute anye  meane betwixte) either of cooles, or of chippes.
+
+1. Of oyles deſtilled, and firſt generally then particularly.
+
+1. Hovv oile muſt be dravvn oute of ſpices, as Cloues, Nutmegs, Saffron, Mace, and other.
+
+1. Hovve oile is dravvne out of vvodes and other like, as Cloues by deſtillacion oute of Cardan.
+
+1. Of oils of flovvers.
+
+1. Of oils of ſiedes and fruites,
+
+1. Certain oyls of ſiedes vvhiche I founde in a booke of Waters of Raimund Lullius.
+
+1. Of oyle of the beries of Iuniper, deſtilling firſt by aſcencion, then by deſcencion as I learned of my frendes.
+
+1. Of oyls of gums, teeres or liquors, thickened or congeled, and roſines.
+
+1. Of oyle of Turpentine or larigna reſina.
+
+1. Oiles of barkes. 
+
+1. Of oils that are dravven out of Woodes.
+
+1. Of trevve Balm, and antibalm, that is Oyls compoſed by arte, whiche are vſed in ſteed of the true Balm both within and without the body.
+
+1. Of balmes made by Arte.
+
+1. Of Balmes that be vſed vvith out the body.
+
+1. Of oyles of the partes of beaſtes, or excrementes.
+
+1. Of oyles of metals, tile ſtones, Gagate, Aumber.
+
+1. Of Aqua fortis and ſuch lyke. 
+
+1. Of the lyquors of precious ſtones.
+
+1. Of cirtain maſſy thinges, as quickſiluer 
+precipitated or killed, and the ſame and arſn•ck ſublimated.
+
+1. Of certaine other not Alchymiſticall or not deſtilled or ſublimated medicines, but cunninglye and wittilye prepared by other and diuers wayes.
+
+1. Of diuers Oyles.
+
+1. Of oyll of Tartarum, that is the dry Lies of wyne.
+
+1. Of oyls of the yelkes of egges, wormes, and Scorpions.
+
+1. Of fomentations and perfumes▪
+
+1. Of certain iuices.
+
+1. Again of the iuice of black Elleborus: and of the drawing out of the vertues out of purging medicines and certain other, as I learned of a certin friend.
+
+1. Of the iuice of the Flour Deluceand Rape. &c.
+
+1. Of decocted thinges.
+
+1. Of made vvyne, and mixt with medicines.
+
+1. Of Aromaticall vvynes that is made of Spices.
+
+1. Of ſvviet vvines ſpiced.
+
+1. Three vvaies to make Nectar, 
+wherof the firſt .ii. are called Gratia Dei, the thirde Manus Dei, oute of a writen boke.
+
+1. Of ſpiced vvines vvith burning water.
+
+1. Of certain other Aromatical vvynes, ſpecially ſuch as are made by hanging a litle bag in the veſſell.
+
+1. Of Artificiall vv•nes vvhiche reſem▪ ble the taſt of ſtrange wynes, bycauſe of the ſpyoes hāged in a litle bag within the veſſel. 
 
 **Types of content**
 
